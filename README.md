@@ -1,4 +1,5 @@
-<img width="1300" height="1300" alt="Tumblr_l_589172144468736" src="https://github.com/user-attachments/assets/637aeeab-b83d-435a-b95e-bb2a061f227c" />
+<img width="500" height="448" alt="Tumblr_l_118147960960866" src="https://github.com/user-attachments/assets/5edb73b3-0bd7-4bc8-91b4-14d9d2a2a196" />
+
 
 
 
