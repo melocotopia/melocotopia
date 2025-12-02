@@ -1,10 +1,3 @@
-<img width="512" height="512" alt="Tumblr_l_41734192341422" src="https://github.com/user-attachments/assets/74cad635-16b8-45cc-bc7e-da560ea5403f" />
+<img width="291" height="60" alt="Tumblr_l_284816917545724" src="https://github.com/user-attachments/assets/27914ebf-0989-46a4-a116-1b485f186ef9" />
 
-
-
-
-
-
-
-
-𝗘𝗏𝖾𝗇 𝗦𝗍𝖺𝗋𝗌 𝗡𝗂𝗀𝗁𝗍 𝗙𝖺𝗅𝗅𝗌.
+on the verge of collapse and close to suicide 
